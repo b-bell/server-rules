@@ -1,0 +1,7 @@
+NO SPAWN KILLING, NO TOXICITY, NO HACKING
+NO REENTERING SPAWN AREA AFTER LEAVING IT
+
+Discipline Protocal for Deathmatch Only.
+1. Warning
+2. 30 Day Ban
+3. Perma Ban
